@@ -1,3 +1,3 @@
 # red-car
 
-why are you reading tos 💀
+why are you reading TOS 💀
